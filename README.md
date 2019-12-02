@@ -1,0 +1,2 @@
+# angel
+Te gustaría aprender a  _*GENERAR DINERO CON UNA INVERSIÓN MINIMA EN DAGCOIN*_  Desde la comodidad de tú Teléfono 🤳🏻  *Requisitos:* 1. Tener correo🤳🏻👨🏻‍💻👩🏻‍💻 2. Tener Internet 🌎👨🏻‍💻👩🏻‍💻  *Beneficios:* 1.planes desde 100.000pesos. 2.moneda del futuro dagcoin   3. Solo personas mayores de edad.  Para consultas e informes, desde su celular siga el siguiente enlace whatsapp🥏👇🏻👇🏻👇🏻: https://bit.ly/2OCsjVC
